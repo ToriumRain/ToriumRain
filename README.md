@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to find work that wouldn't fuck me entire life
 - 💞️ I’m looking to collaborate on husbandry
 - 📫 How to reach me: Ust'-Chilim
-- 😄 Pronouns: I swear to God
+- 😄 Pronouns: Bow down and spare the reed
 - ⚡ Fun fact: Never be too great or coding will curse your entire life
 
 <!---
